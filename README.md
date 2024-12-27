@@ -2,6 +2,15 @@
 
 En las últimas horas el nombre de Emiliano Martínez o conocido como el Dibu Martínez, se ha convertido en tendencia en redes sociales, y no por su destacado juego en el campo, se trata de una supuesta filtración de un "Video viral intimo Dibu Martínez en Twitter", lo que está causando una polémica en las plataformas sociales.
 
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+📺📱👉◄◄🔴 https://tinyurl.com/56vdwuy6
+
+
+
 Uno de los aspectos que Uno de los aspectos que ha avivado la controversia es la especulación de que las imágenes muestran a el 'Dibu Martínez' en una situación íntima.
 
 Aunque el contenido no está completamente verificado ha sido suficiente para el nombre de 'Dibu Martínez' este en paralelo en redes sociales, es importante destacar que esto podría tratarse de contenido generado con inteligencia artificial, ya que los internautas se han empeñado en divulgar material de origen desconocido.
